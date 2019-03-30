@@ -77,10 +77,10 @@ A "996" work schedule is in **blunt violation** of the Constitution of the Peopl
 
 ### State Council Regulations on Working Hours of Employees
 
-### Article 3：
+### Article 3:
 > Workers and staff shall work 8 hours a day and 40 hours a week.
 
-### Article 6：
+### Article 6:
 > No unit or individual shall extend the working hours of their workers and staff without authorization. When the working hours are necessary to extend for the purpose of special case or emergent assignment， it shall be implemented according to the relevant provisions of the State.
 
 ## Gaining in popularity and publicity
